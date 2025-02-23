@@ -33,3 +33,4 @@
 ---  
 -  **Demo Video**：[https://youtu.be/jIEGq1-EnqU]  
 -  **聯絡方式**：[winniel910109@gmail.com]  
+-  **專題壓縮檔下載**：[https://drive.google.com/file/d/1DulCa2pZCSd1yy7CbD9fCAT_z6WTLiZ6/view?usp=drive_link]
